@@ -2,7 +2,7 @@
 
 Urlennia is a sovereign nation of natural, sentient beings living in communal harmony, safeguarded by the preeminence of our constitution under the divine covering of the Creator (Revelation 22:13, Isaiah 40:28, Deuteronomy 32:4). We are devoted to the general welfare of the individual and the sanctity of the family institution, casting away the vestiges of a disgraced history of colonial subjugation and the sword of color prejudice. We embark on a new trajectory, built upon the foundation of love, peace, freedom, truth, and justice. Forever mindful of the trappings of spiritual warfare that burden nations, we stand firm in faith, holding to the promise of John 3:16.
 <br><br>
-Sustained by a growing AgriTech ecosystem to feed our promising nation and the international trade of our decentralized national currency, the Urlennia Digital Coin (URDC), we empower our nationals with financial independence, transparency, and control over their economic future.
+Sustained by a growing AgriTech ecosystem to feed our promising nation and the international trade of our decentralized national currency, the Urlennian Digital Coin (URDC), we empower our nationals with financial independence, transparency, and control over their economic future.
 <br><br>
 Interested in becoming a Urlennian national please review the requirements for naturalization:
 
