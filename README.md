@@ -16,7 +16,7 @@ Civics knowledge: Be able to demonstrate knowledge of UR civics  
 
 Allegiance: Pledge allegiance to Urlennia  
 
-Application fee: Pay the application fee, which can range from $79 - $100
+Application fee: $79
 
 
 Apply for Naturalization today - <a href="https://urlennia.com/application-for-naturalization/">click here</a>
