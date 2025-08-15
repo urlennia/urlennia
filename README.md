@@ -19,7 +19,7 @@ Allegiance: Pledge allegiance to Urlennia  
 Application fee: $79
 
 
-Apply for Naturalization today - <a href="https://urlennia.com/application-for-naturalization/">click here</a>
+Apply for Naturalization today - <a href="https://urlennia.com">click here</a>
 
 
 
